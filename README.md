@@ -10,5 +10,4 @@ Meu nome é Lucas
 
 00001109465610sp@al.educacao.sp.gov.br
 
-https://media1.tenor.com/m/FnFH6kxGLbUAAAAC/red-alphabet-letter-dancing-letter-l.gif
 
